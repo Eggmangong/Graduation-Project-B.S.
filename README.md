@@ -1,1 +1,1 @@
-# Graduation-Project-B.S.
+# Graduation Project B.S.
